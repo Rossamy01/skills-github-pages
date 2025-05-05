@@ -1,4 +1,4 @@
 ---
-title: Instructional Design Portfolio: Amy Ross
+title: Amy Ross Instructional Design Portfolio
 ---
 
