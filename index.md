@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Instructional Design Portfolio: Amy Ross
 ---
 
